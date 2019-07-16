@@ -1,3 +1,0 @@
-# minhafp.github.io
-
-Congratulations! 
